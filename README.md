@@ -1,1 +1,2 @@
-# rsschool-cv
+# rsschool-
+https://OlgaVerpovskaya.github.io/rsschool-cv/cv                               
